@@ -5,7 +5,7 @@ Actualmente estoy trabajando como técnico comercial en un laboratorio de Metrol
 
 He retomado mis estudios con una especialización en **IA y BIG DATA**
 
-Mis estudios previos son un grado supreior en robotica u automatización
+Mis estudios previos son un grado superior en robotica u automatización
 
 ### Sobre mis gustos y aficiones algunas serían las siguientes:
 - Hacer deportes como padel o fútbol
